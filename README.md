@@ -4,6 +4,8 @@
 - 🌱 I’m currently learning computer science
 - 📫 How to reach me: carlitosblanos0@gmail.com
 
+![image](https://github.com/phasehidden/phaseHidden/assets/122298425/5a2b59c4-5497-4263-8b58-8321d15f7faa)
+
 
 
 
